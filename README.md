@@ -1,4 +1,4 @@
-# =LOVE – 仲直りシュークリーム (＝LOVE 7th ANNIVERSARY PREMIUM CONCERT)
+# =LOVE – 仲直りシュークリーム(instrumental)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
